@@ -17,3 +17,5 @@ While on their way there, Vada mentions Sumo Momo is so strong that nobody has d
   The group make it to the stadium, where a challenger is blown outside and lands on the sidewalk next to Samosa, hurt.
    Samosa cheers for Sumo Momo and enters the stadium after Dhokla and Jalebi, completely disregarding the hurt challenger.
 
+The announcer says that Samosa is the challenger who is going to fight Sumo Momo,
+ much to the surprise of Samosa since he is very weak compared to him.
